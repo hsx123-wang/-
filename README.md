@@ -1,1 +1,2 @@
+Hyper-realistic macro shot of aluminum honeycomb structure, extreme close-up of hexagonal cells, razor-sharp edges, polished metallic surface with reflections, dramatic lighting, depth of field, glowing edges, floating in mid-air, surrounded by tiny floating dust particles, ultra detailed, 8k resolution, cinematic lighting, exaggerated scale, futuristic industrial design, sense of lightweight and strength, award-winning product photography style
 # -
